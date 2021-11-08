@@ -1,3 +1,3 @@
 使用说明
 ========
-请点击 https://blog.5772447.xyz/NXAY/
+请点击 https://zeuo.eu.org/posts/50115/
